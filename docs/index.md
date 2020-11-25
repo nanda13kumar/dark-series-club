@@ -1,37 +1,20 @@
-## Welcome to GitHub Pages
+# Mookuthi_Amman review 🔥💯
 
-You can use the [editor on GitHub](https://github.com/nanda13kumar/dark-series-club/edit/main/docs/index.md) to maintain and preview the content for your website in Markdown files.
+When you see this movie you will clearly understand how the brain of a typical mental k⭕⭕dhi works. In this movie'a case, it's two directors so two mental k⭕⭕dhis and one of the two directors is RJ Balaji naa himself, so let's have a detailed look at this film.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+The story is a bit of a clusterfuck because , we are not sure where it's going towards and the premise keeps changing every 30 mins , I mean I thought this was all about a trip to Tirupathi, then it was about Amman making her Temple famous , then it was about fighting a corporate saamiar and then in between it was about reuniting with a lost father as well, the story isn't clear about it's pacing and story itself is polarizing and it is all over the place, just like RJ Balaji's thinking process. 
 
-### Markdown
+The movie could have been about one thing but no... it has to be about a lot of things, the movie is dealing with a wide assortment of issues and at one point it's pretty hard to keep track and at some points it's just fookin annoying. There are many problematic parts in this movie as well, let me explain...
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+So there is this sister of main character (RJ Balaji) who goes to a Christian School and so she is protrayed as a person who is being influenced by Christian faith just because she goes to a Christian School and she also has a secret Christian name, this is not only discriminatory but this particular portion adds no value to the story or screenplay 🤷‍♂️... This is just one of the many sequences which happens to be a loose end or simply just another unreasonable placement in this film. 
 
-```markdown
-Syntax highlighted code block
+See there is this sequence where Amman appears before RJ Balaji and asks him to make her temple famous by pulling in crowd and making the temple famous, do you see a point in this? Because I clearly don't, sorry I don't want to get in to this review with an atheist angle and all but there is simply no point in what Nayanthara Amman did coughs sorry Mookuthi Amman. Appearing before a random human and making him do things for her, even tho she could have done those things by herself is basically sadism but sorry I did promise not to take the Atheist angle. I did understand one thing tho, even movies like "Palayathu amman" had a straightforward and a better screenplay suitable for this genre of Indian religious flicks, compared to this cringefest Mookuthi Amman.
 
-# Header 1
-## Header 2
-### Header 3
+The villan character design was the dumbest one I have seen so far, they try to reference him to multiple existing god mens like Jaggi and Nithyanandha but they should have made him more cunning, stronger and a tad bit more notorious and deceiving to make the character work well but thanks to the directorial duo we got a clown as a villain and the clown is not of the good kind, there is a sequence where the villain asks everyone , " Yaen ellarum building aa "building" nu solranga nu theriyum aa? , People will be like "engaluku therila baba, Neenga solunga baba" for this he replies "Yenna building kattum bothu dInG dInG nu satham varum, adhunala than buil'ding' nu adhuku peyar vandhuchi" 😒😒😒😒😒😒😒😒.
+RJ Balaji 🅱️⭕⭕l la ongi kuthunalum kooda than ding ding nu satham varum but that would be in bad taste and an improper way to express our displeasure wink wink.
 
-- Bulleted
-- List
+The ideas they express in this film is problematic, the story and screenplay has issues , the humor is a bit substandard and poor in many areas , casting Nayanthara as Amman doesn't add any effect to the movie because the screenplay is underwhelming. There are some portions in this film which aren't half bad but poor writing and cringe supporting sequences ruin those sequences as well. One positive thing about this movie would be the cinematography work, looked much better than the movie itself. The movie will make an impact on you when you think while watching this movie, namma namalaye kathi eduthu moonu kuthu kuthi irukalam, instead of watching this Mookuthi amman, this is where RJ Balaji succeeds as a director.(comicsthan intensifies) 🏃‍♂️🏃‍♂️🏃‍♂️
 
-1. Numbered
-2. List
+Bottom line - RJ Balaji and the other guy whom I don't remember the name (The directorial duo) think that we the people are absolute gullible idiots, adhan they make movies like this, they think they can write anything and cast Nayanthara in it and magically the movie will become better. Even if God exists , he/she will be like enna 🅱️unda padam da idhu. I can guarantee that. 
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/nanda13kumar/dark-series-club/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+## thalavali_amman #rjBalajis_dont_panic_direction #schumy  #svk_reviews
